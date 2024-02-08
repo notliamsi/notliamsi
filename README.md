@@ -2,4 +2,4 @@ I'm Liamsi 👋, I code to make my life better.
 
 Every project is made with passion <3.
 
-![musashi](https://i.pinimg.com/564x/77/01/01/770101fc5cda5a5a968282e55285efed.jpg)
+![musashi](https://i.pinimg.com/564x/2d/71/9b/2d719b62f39c91c0f285756d912fa474.jpg)
